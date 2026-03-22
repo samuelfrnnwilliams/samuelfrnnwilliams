@@ -2,10 +2,8 @@
 
 <br>
 
-<img width="256" height="343" alt="nil" src="https://i.postimg.cc/T19yMqrz/G5e8nd-EXw-AAnmq-C.png" />
+<img width="514" height="177" alt="nil" src="https://i.postimg.cc/4NyZR858/Screenshot-2026-02-18-192353.png" />
 
-[ata](https://samuelfrnwilliams.atabook.org/) ┊ [straw](https://samuelfrnnwilliams.straw.page/) ┊ [rentry](https://rentry.co/blackberrywine) 
+ ~      <i> ♡. she/he, __minor__ .• </i> ~ ,, <i> usually offtab. </i>
 
-  <i> ♡. she/he, __minor__ .• </i>
-  
-<i> usually offtab. </i>
+  [ata](https://samuelfrnwilliams.atabook.org/) ┊ [straw](https://samuelfrnnwilliams.straw.page/) ┊ [rentry](https://rentry.co/blackberrywine) 
