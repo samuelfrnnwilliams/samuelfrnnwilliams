@@ -2,7 +2,7 @@
 
 <br>
 
-<img width="514" height="177" alt="nil" src="https://i.postimg.cc/4NyZR858/Screenshot-2026-02-18-192353.png" />
+<img width="400" height="170" alt="nil" src="https://i.postimg.cc/L8V133vt/G1u-EKd-BWk-AAI34S.png" />
 <br>
 
 
